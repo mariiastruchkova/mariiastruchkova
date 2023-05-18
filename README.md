@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mariiastruchkova
-- 👀 I’m interested in job search and new knowledge in programming.
+- 👀
 - 💞️ I’m looking to collaborate on startups. 
 - 📫 How to reach me e-mail: mashastruchkova93@gmail.com
 
